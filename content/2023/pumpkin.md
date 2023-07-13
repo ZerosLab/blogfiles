@@ -21,3 +21,6 @@ gonna see my fiancee next week, and really looking forward to it, were planning 
 anyway, hope folks are doing well, and im gonna try to stay pretty active on here, as opposed to how ive been in the past lol. 
 
 oh also i might post an update for [The Gospel of Asmodeus](https://archiveofourown.org/works/35611465) soon. that will be a sex scene in a cave. highly heretical lol. 
+
+
+P.S. also i made an [Etsy shop](ZeroPatches.etsy.com) where i sell patches.
